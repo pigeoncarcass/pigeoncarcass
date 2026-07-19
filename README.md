@@ -10,8 +10,8 @@
 ![stamp-spacehey (2)](https://github.com/user-attachments/assets/62744a18-7728-4ac5-b852-f0147ac00d4e)
 ![stamp-spacehey (3)](https://github.com/user-attachments/assets/a77e7731-b930-4b5f-a168-6104abae6ea2)
 
-⊱ㅤㅤ｡　　제발 곁에 있어 줘 . . .
-　　오 나의 클레마티스.　　 ׂ　Ⳋྀ　
+⊱ㅤㅤ｡　　오 나의 클레마티스 . . .
+　　제발 곁에 있어 줘.　　 ׂ　Ⳋྀ　
 
  
 <img width="500" height="49" alt="tumblr_954da6d4ab8cce38260508ab7a0d675a_bb4eb83d_500" src="https://github.com/user-attachments/assets/2a2f2c4d-67c3-4baa-b707-664b5275add0" />
